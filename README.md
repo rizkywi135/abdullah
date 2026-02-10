@@ -1,0 +1,2 @@
+# abdullah
+kesuksesan dengan kesabaran
